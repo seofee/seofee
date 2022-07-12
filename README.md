@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Carolin
+- 👀 I’m interested in digital media
+- 🌱 I’m currently learning content marketing
+- 💞️ I’m looking to collaborate on social media
+- 📫 How to reach me hello @ carolinmallmann.de   / https://wwww.carolinmallmann.de
